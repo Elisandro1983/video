@@ -1,0 +1,1 @@
+# Arquivo gerado novamente para restaurar acesso ao script completo do Res Checker Pro com blend.
